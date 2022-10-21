@@ -6,6 +6,6 @@
 
 > Original Creator Of Vape: https://github.com/7GrandDadPGN 
 
-> Please contact 'nexus> 2446' On discord for any questions about the backup. 
+> Please contact 'nexus#2446' On discord for any questions about the backup. 
 
 > If this is xylex and you would like me to take down the site, Please DM me.
