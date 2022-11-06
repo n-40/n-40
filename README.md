@@ -1,6 +1,6 @@
 > 7GrandDadPGN is the real owner of Vape For Roblox!
 
-> I am not impersonating, i am merely making a backup for 'https://7GrandDadPGN.github.io'
+> I am cool 😎😎😎😎
 
 > Vape For Roblox Discord: invites are off rn 😡
 
@@ -10,7 +10,7 @@
 
 > If this is xylex and you would like me to take down the site, Please DM me.
 
-# Profile
+# my discord status 🤔
 <p align = "center">
     <img src = "https://discord.c99.nl/widget/theme-2/565667519373901853.png"/>
 </p>
