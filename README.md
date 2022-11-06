@@ -2,7 +2,7 @@
 
 > I am not impersonating, i am merely making a backup for 'https://7GrandDadPGN.github.io'
 
-> Vape For Roblox Discord: discord.gg/vxpe 
+> Vape For Roblox Discord: invites are off rn 😡
 
 > Original Creator Of Vape: https://github.com/7GrandDadPGN 
 
