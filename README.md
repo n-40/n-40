@@ -1,5 +1,4 @@
-# :trollface: we do a little bit of trolling :trollface:
-> we do a little bit of trolling :trollface:
+# am epic dev
 
 # my discord status 🤔
 <p align = "center">
